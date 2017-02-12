@@ -51,7 +51,8 @@ esittivät myös CDU-poliitikko ja Tübingenin ylipormestari Palmer (Vihr.).
 Baijerin kristillissosiaalinen unioni ja liittohallituksen kolmas
 hallituspuolue CSU vaativat 200 000 pakolaisen ylärajaa. Ketään edellä
 mainituista ei leimata äärioikeistolaisiksi rasisteiksi. Tämä väite päätyi
-muuten Lapin Kansan uutiseen saakka.
+muuten Lapin Kansan uutiseen saakka. Nämä tiedot selviävät Saksan kirjeenvaihtajan
+Pertti Rönkön Facebook-seinällään välittämistä tiedoista.
 
 **The Federalist** [listaa 16
 uutista](http://thefederalist.com/2017/02/06/16-fake-news-stories-reporters-have-run-since-trump-won/),
